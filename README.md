@@ -8,11 +8,11 @@ If you want to send us projects for listing review\. Please kindly provide the p
 
 Currently we have a very high listing standard\. We will let you know if we can push forward\. If you don't hear from us, it is likely that we want to watch your further development\. Also feel free to go for more external partners to get more liquidity and stronger influence\.
 
-# <a id="_9i6jecfgy4um"></a>Stay Away from Scams
+# <a id="_9i6jecfgy4um"></a>Stay Away from Scams（謹防詐騙）
 
 Bybit does not partner with any external agency in listing\. Please talk to Bybit members directly to avoid scams\. Please be aware of impersonators, scammers, and frauds\. Fraudsters may reach out via email, Twitter, Telegram, Whatsapp or Wechat\. Always verify your Bybit contact on [https://www\.bybit\.com/en\-US/verification](https://www.bybit.com/en-US/verification)\.
 
-# <a id="_bwzjgnz0ucan"></a>Misconduct and Reporting Procedures
+# <a id="_bwzjgnz0ucan"></a>Misconduct and Reporting Procedures（檢舉造謠/貪腐等違規行為）
 
 We uphold stringent standards of business conduct and ethical behavior at Bybit\. Members of the listing team are prohibited from accepting personal benefits from token projects or any other parties involved in token listing processes\. 
 
