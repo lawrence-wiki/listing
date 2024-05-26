@@ -4,7 +4,7 @@ Due to an extremely large volume of applications, please forgive me that I may n
 
 # <a id="_b0wuwghcpn"></a>Listing Application
 
-If you want to send us projects for listing review\. Please kindly provide the project info by using [this doc](https://docs.google.com/document/d/1HBvieEnEdfzArGoP341bu6EDIXvwk3yf/edit#heading=h.gjdgxs) and send it back to my email once it is complete\. 
+If you want to send us projects for listing review\. Please kindly provide the project info by using [this doc](https://github.com/lawrence-wiki/listing/blob/bd04b351cb1bd5aee785300ac8a0793207ae9790/Standard%20Project%20Info%20Collection%20Form%20For%20Listing%20Application-%20Bybit%20%202024.docx) and send it back to my email once it is complete\. 
 
 Currently we have a very high listing standard\. We will let you know if we can push forward\. If you don't hear from us, it is likely that we want to watch your further development\. Also feel free to go for more external partners to get more liquidity and stronger influence\.
 
