@@ -6,7 +6,7 @@ Due to an extremely large volume of applications, please forgive me that I may n
 
 For most general listing applications, please apply via our [standard listing application portal](https://www.bybit.com/en/trade/spot/listing-apply).
 
-If you believe your project so very competitive that you want to send it to us for detailed listing review\. Please kindly provide the project info by using [this doc](https://onedrive.live.com/view.aspx?resid=5F1FA08CE55753F%21108&authkey=!AAE2pRevDlaafoM) and send it back to my email once it is complete\. 
+If you believe your project is highly competitive and would like to submit it for a detailed listing review, please kindly provide the project information by using [this doc](https://onedrive.live.com/view.aspx?resid=5F1FA08CE55753F%21108&authkey=!AAE2pRevDlaafoM) and send it back via email once it is complete\. 
 
 Currently we have a very high listing standard\. We will let you know if we can push forward\. If you don't hear from us, it is likely that we want to watch your further development\. Also feel free to go for more external partners to get more liquidity and stronger influence\.
 
